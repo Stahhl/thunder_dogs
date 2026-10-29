@@ -26,11 +26,9 @@
 
 **§ 2:8 Ärlighet.** "Thunder" syftar på ljudet när någon av oss landar efter en rebound. "Dogs" syftar på hundarna. Och på vår spelstil.
 
-**§ 2:9 Vi spelar i alla väder.** Regn, snö, storm och hetta. Vi spelar utomhus, och det märks. Bollen studsar olika beroende på årstid, och i november studsar den inte alls. Vädret duger alltid som ursäkt för en miss och för att komma sent. Det är också anledningen till att vi letar efter en inomhushall, men tills vidare spelar vi där vi står.
+**§ 2:9 Öppenhet för alla musikstilar.** Dansband, death metal, schlager och sju minuter valsång, allt är välkommet i högtalaren. Den som kommer först väljer musik, och därför är det oftast hundarna. Ingen vet riktigt vad de har valt, men alla gillar det.
 
-**§ 2:10 Öppenhet för alla musikstilar.** Dansband, death metal, schlager och sju minuter valsång, allt är välkommet i högtalaren. Den som kommer först väljer musik, och därför är det oftast hundarna. Ingen vet riktigt vad de har valt, men alla gillar det.
-
-**§ 2:11 Frånvaro anmäls dagen innan.** Den som inte kan komma rapporterar det senast dagen innan. Ingen läser anmälan, men den finns där, och det är det som räknas. Anmälan efter kl. 12 på söndagen räknas som att vara fashionabelt sen, fast mer.
+**§ 2:10 Frånvaro anmäls dagen innan.** Den som inte kan komma rapporterar det senast dagen innan. Ingen läser anmälan, men den finns där, och det är det som räknas. Anmälan efter kl. 12 på söndagen räknas som att vara fashionabelt sen, fast mer.
 
 ## 3. Vår uppförandekod
 
