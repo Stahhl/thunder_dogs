@@ -6,13 +6,15 @@
 
 Att någon gång under en hel match veta vad poängställningen är.
 
+Att någon gång spela en hel match med tak över huvudet. Vi söker aktivt en inomhushall. Tips tas tacksamt emot, helst sådana där hundar är välkomna.
+
 ## Våra kärnvärden
 
 1. **Inkludering.** Alla är välkomna, oavsett längd, kondition, promillehalt eller antal ben. Hundar är medlemmar på samma villkor som alla andra, och flera av dem har bättre bollkänsla.
 
 2. **Bakfullhet är inget hinder.** Den som dyker upp utvilad betraktas med misstänksamhet.
 
-3. **Fashionabelt sen.** Vi spelar söndagar klockan 12. Alltid. Det är den enda regel vi aldrig ändrar, och den enda vi aldrig följer. Den som kommer i tid får värma upp ensam och lära sig något om sig själv. Hundar är undantagna, de kommer alltid först och väntar vid dörren med förväntansfull blick.
+3. **Fashionabelt sen.** Vi spelar söndagar klockan 12. Alltid. Det är den enda regel vi aldrig ändrar, och den enda vi aldrig följer. Den som kommer i tid får värma upp ensam och lära sig något om sig själv. Hundar är undantagna, de kommer alltid först och väntar under korgen med förväntansfull blick.
 
 4. **Regler är riktlinjer.** Steg räknas inte förrän vid sju. Hundar får springa med bollen i munnen, och ärligt talat är det inte stor skillnad mot hur vi gör.
 
@@ -26,7 +28,7 @@ Att någon gång under en hel match veta vad poängställningen är.
 
 9. **Ärlighet.** "Thunder" syftar på ljudet när någon av oss landar efter en rebound. "Dogs" syftar på hundarna. Och på vår spelstil.
 
-10. **Vi spelar i alla väder.** Regn, snö, storm och hetta. Att vi spelar inomhus gör löftet lättare att hålla, men vädret duger fortfarande gott som ursäkt för att komma sent.
+10. **Vi spelar i alla väder.** Regn, snö, storm och hetta. Vi spelar utomhus, och det märks. Bollen studsar olika beroende på årstid, och i november studsar den inte alls. Vädret duger alltid som ursäkt för en miss och för att komma sent. Det är också anledningen till att vi letar efter en inomhushall, men tills vidare spelar vi där vi står.
 
 11. **Öppenhet för alla musikstilar.** Dansband, death metal, schlager och sju minuter valsång, allt är välkommet i högtalaren. Den som kommer först väljer musik, och därför är det oftast hundarna. Ingen vet riktigt vad de har valt, men alla gillar det.
 
@@ -34,7 +36,7 @@ Att någon gång under en hel match veta vad poängställningen är.
 
 ## Vår uppförandekod
 
-- Skyll alltid på bollen, golvet eller hunden, i den ordningen.
+- Skyll alltid på bollen, vädret, asfalten eller hunden, i den ordningen.
 - Hundar som stjäl bollen räknas som försvarsspelare. De är ändå de enda som spelar försvar.
 - Resultatet är alltid "kul". Det är den enda statistik vi för.
 
