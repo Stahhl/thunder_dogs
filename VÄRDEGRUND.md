@@ -4,7 +4,7 @@
 
 ## 1. Vår vision
 
-**§ 1:1** Att någon gång under en hel match veta vad poängställningen är.
+**§ 1:1** Att aldrig under en hel match veta vad poängställningen är. Hittills har vi lyckats varje söndag.
 
 **§ 1:2** Att någon gång spela en hel match med tak över huvudet. Vi söker aktivt en inomhushall. Tips tas tacksamt emot.
 
