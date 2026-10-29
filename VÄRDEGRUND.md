@@ -18,21 +18,19 @@
 
 **§ 2:4 Regler är riktlinjer.** Steg räknas inte förrän vid sju. Hundar får springa med bollen i munnen, och ärligt talat är det inte stor skillnad mot hur vi gör.
 
-**§ 2:5 Lagandan.** Ingen ska behöva missa ett öppet skott ensam.
+**§ 2:5 Lagandan.** Ingen ska behöva missa ett öppet skott ensam, och ingen ska behöva göra det utan publik. Vi applåderar alltid, oavsett lag och oavsett om bollen gick i. Ett snyggt mål förtjänar applåder, ett fult mål förtjänar fler, och en airball förtjänar stående ovationer för modet.
 
-**§ 2:6 Applådera alltid.** Oavsett lag, oavsett om bollen gick i. Ett snyggt mål förtjänar applåder, ett fult mål förtjänar fler, och en airball förtjänar stående ovationer för modet.
+**§ 2:6 Anpassning neråt.** Den som råkar vara bra förväntas anpassa sig efter gruppen. Det innebär att missa då och då, glömma bort vilket håll man anfaller åt och aldrig, under några omständigheter, dunka. Den som inte klarar av att spela sämre kan alltid låna en av hundarna som markering.
 
-**§ 2:7 Anpassning neråt.** Den som råkar vara bra förväntas anpassa sig efter gruppen. Det innebär att missa då och då, glömma bort vilket håll man anfaller åt och aldrig, under några omständigheter, dunka. Den som inte klarar av att spela sämre kan alltid låna en av hundarna som markering.
+**§ 2:7 Basketchefen har alltid sista ordet.** I frågor om regler, lagindelning, poängställning och huruvida det var steg är basketchefens ord lag. Basketchefen behöver inte kunna reglerna, bara låta säker. Överklaganden kan lämnas till hundarna, som har exakt lika mycket inflytande.
 
-**§ 2:8 Basketchefen har alltid sista ordet.** I frågor om regler, lagindelning, poängställning och huruvida det var steg är basketchefens ord lag. Basketchefen behöver inte kunna reglerna, bara låta säker. Överklaganden kan lämnas till hundarna, som har exakt lika mycket inflytande.
+**§ 2:8 Ärlighet.** "Thunder" syftar på ljudet när någon av oss landar efter en rebound. "Dogs" syftar på hundarna. Och på vår spelstil.
 
-**§ 2:9 Ärlighet.** "Thunder" syftar på ljudet när någon av oss landar efter en rebound. "Dogs" syftar på hundarna. Och på vår spelstil.
+**§ 2:9 Vi spelar i alla väder.** Regn, snö, storm och hetta. Vi spelar utomhus, och det märks. Bollen studsar olika beroende på årstid, och i november studsar den inte alls. Vädret duger alltid som ursäkt för en miss och för att komma sent. Det är också anledningen till att vi letar efter en inomhushall, men tills vidare spelar vi där vi står.
 
-**§ 2:10 Vi spelar i alla väder.** Regn, snö, storm och hetta. Vi spelar utomhus, och det märks. Bollen studsar olika beroende på årstid, och i november studsar den inte alls. Vädret duger alltid som ursäkt för en miss och för att komma sent. Det är också anledningen till att vi letar efter en inomhushall, men tills vidare spelar vi där vi står.
+**§ 2:10 Öppenhet för alla musikstilar.** Dansband, death metal, schlager och sju minuter valsång, allt är välkommet i högtalaren. Den som kommer först väljer musik, och därför är det oftast hundarna. Ingen vet riktigt vad de har valt, men alla gillar det.
 
-**§ 2:11 Öppenhet för alla musikstilar.** Dansband, death metal, schlager och sju minuter valsång, allt är välkommet i högtalaren. Den som kommer först väljer musik, och därför är det oftast hundarna. Ingen vet riktigt vad de har valt, men alla gillar det.
-
-**§ 2:12 Frånvaro anmäls dagen innan.** Den som inte kan komma rapporterar det senast dagen innan. Ingen läser anmälan, men den finns där, och det är det som räknas. Anmälan efter kl. 12 på söndagen räknas som att vara fashionabelt sen, fast mer.
+**§ 2:11 Frånvaro anmäls dagen innan.** Den som inte kan komma rapporterar det senast dagen innan. Ingen läser anmälan, men den finns där, och det är det som räknas. Anmälan efter kl. 12 på söndagen räknas som att vara fashionabelt sen, fast mer.
 
 ## 3. Vår uppförandekod
 
