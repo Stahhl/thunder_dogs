@@ -30,6 +30,10 @@
 
 **§ 2:10 Frånvaro anmäls dagen innan.** Den som inte kan komma rapporterar det senast dagen innan. Ingen läser anmälan, men den finns där, och det är det som räknas. Anmälan efter kl. 12 på söndagen räknas som att vara fashionabelt sen, fast mer.
 
+**§ 2:11 Minst sex spelare.** Det krävs sex spelare för att match ska spelas. Hundar räknas inte, hur gärna de än vill. Är vi färre än sex står vi och väntar på att någon ska dyka upp, vilket i praktiken är samma sak som att komma fashionabelt sent.
+
+**§ 2:12 Lövhalka är livsfarlig.** Det här är den enda paragraf vi menar helt allvarligt. Blöta löv på planen är halare än is, och ingen fint i världen är värd ett brutet ben. Ligger det löv på planen sopar vi först och spelar sedan. Hundarna hjälper gärna till, men mest genom att springa rakt igenom högarna.
+
 ## 3. Vår uppförandekod
 
 **§ 3:1** Skyll alltid på bollen, vädret, asfalten eller hunden, i den ordningen.
