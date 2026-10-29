@@ -26,6 +26,12 @@ Att någon gång under en hel match veta vad poängställningen är.
 
 9. **Ärlighet.** "Thunder" syftar på ljudet när någon av oss landar efter en rebound. "Dogs" syftar på hundarna. Och på vår spelstil.
 
+10. **Vi spelar i alla väder.** Regn, snö, storm och hetta. Att vi spelar inomhus gör löftet lättare att hålla, men vädret duger fortfarande gott som ursäkt för att komma sent.
+
+11. **Öppenhet för alla musikstilar.** Dansband, death metal, schlager och sju minuter valsång, allt är välkommet i högtalaren. Den som kommer först väljer musik, och därför är det oftast hundarna. Ingen vet riktigt vad de har valt, men alla gillar det.
+
+12. **Frånvaro anmäls dagen innan.** Den som inte kan komma rapporterar det senast dagen innan. Ingen läser anmälan, men den finns där, och det är det som räknas. Anmälan efter kl. 12 på söndagen räknas som att vara fashionabelt sen, fast mer.
+
 ## Vår uppförandekod
 
 - Skyll alltid på bollen, golvet eller hunden, i den ordningen.
