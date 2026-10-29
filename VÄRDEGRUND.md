@@ -24,8 +24,9 @@
 
 **§ 2:8 Öppenhet för alla musikstilar.** Dansband, death metal, schlager och sju minuter valsång, allt är välkommet i högtalaren. Den som kommer först väljer musik, vilket enligt § 2:3 betyder att ingen gör det förrän kvart över tolv.
 
-**§ 2:9 Frånvaro anmäls dagen innan.** Den som inte kan komma rapporterar det senast dagen innan. Ingen läser anmälan, men den finns där, och det är det som räknas.
-**§ 2:10 Minst sex spelare.** Det krävs sex spelare för att match ska spelas. Är vi färre än sex står vi och väntar på att någon ska dyka upp, vilket i praktiken är samma sak som att komma fashionabelt sent.
+**§ 2:9 Frånvaro anmäls dagen innan.** Den som inte kan komma rapporterar det senast dagen innan, så att alla vet om vi blir tillräckligt många.
+
+**§ 2:10 Minst sex spelare.** Det krävs sex spelare för att match ska spelas. Är vi färre än sex blir det ingen match den söndagen.
 
 **§ 2:11 Vi spelar i alla väder.** Regn, snö, storm och hetta. Vi spelar utomhus, och vädret duger alltid som ursäkt för en miss. Enda undantaget är lövhalka, som är livsfarligt. Då sopar vi först och spelar sedan.
 
