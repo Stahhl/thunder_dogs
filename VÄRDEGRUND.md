@@ -4,9 +4,7 @@
 
 ## 1. Vår vision
 
-**§ 1:1** Att aldrig under en hel match veta vad poängställningen är. Hittills har vi lyckats varje söndag.
-
-**§ 1:2** Att någon gång spela en hel match med tak över huvudet. Vi söker aktivt en inomhushall. Tips tas tacksamt emot.
+**§ 1:1** Vi leker basket.
 
 ## 2. Våra kärnvärden
 
@@ -26,8 +24,7 @@
 
 **§ 2:8 Öppenhet för alla musikstilar.** Dansband, death metal, schlager och sju minuter valsång, allt är välkommet i högtalaren. Den som kommer först väljer musik, vilket enligt § 2:3 betyder att ingen gör det förrän kvart över tolv.
 
-**§ 2:9 Frånvaro anmäls dagen innan.** Den som inte kan komma rapporterar det senast dagen innan. Ingen läser anmälan, men den finns där, och det är det som räknas. Anmälan efter kl. 12 på söndagen räknas som att vara fashionabelt sen, fast mer.
-
+**§ 2:9 Frånvaro anmäls dagen innan.** Den som inte kan komma rapporterar det senast dagen innan. Ingen läser anmälan, men den finns där, och det är det som räknas.
 **§ 2:10 Minst sex spelare.** Det krävs sex spelare för att match ska spelas. Är vi färre än sex står vi och väntar på att någon ska dyka upp, vilket i praktiken är samma sak som att komma fashionabelt sent.
 
 **§ 2:11 Vi spelar i alla väder.** Regn, snö, storm och hetta. Vi spelar utomhus, och vädret duger alltid som ursäkt för en miss. Enda undantaget är lövhalka, som är livsfarligt. Då sopar vi först och spelar sedan.
@@ -45,3 +42,7 @@
 **§ 4:1** Vi kommer aldrig att vinna något. Men vi kommer tillbaka nästa söndag, ungefär en kvart efter utsatt tid.
 
 *Go Thunderdogs.* 🏀
+
+---
+
+*Notering: Vi söker en inomhushall. Tips tas tacksamt emot.*
