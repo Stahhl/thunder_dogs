@@ -16,7 +16,7 @@
 
 **§ 2:3 Fashionabelt sen.** Vi spelar söndagar klockan 12. Alltid. Det är den enda regel vi aldrig ändrar, och den enda vi aldrig följer. Den som kommer i tid får värma upp ensam och lära sig något om sig själv.
 
-**§ 2:4 Regler är riktlinjer.** Steg räknas inte förrän vid sju.
+**§ 2:4 Regler är riktlinjer.** Steg räknas inte förrän vid sju. Dubbelstuds finns inte. Brottning är tillåten, men endast i nödfall, och vad som är ett nödfall avgörs av den som brottas.
 
 **§ 2:5 Lagandan.** Ingen ska behöva missa ett öppet skott ensam, och ingen ska behöva göra det utan publik. Vi applåderar alltid, oavsett lag och oavsett om bollen gick i. Ett snyggt mål förtjänar applåder, ett fult mål förtjänar fler, och en airball förtjänar stående ovationer för modet.
 
